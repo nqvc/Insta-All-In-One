@@ -1,3 +1,3 @@
-This Tool Made by BUSALAH.
+This Tool Made by BUSALAH + Osama.
 
-@nqvc
+@nqvc @o0dev
